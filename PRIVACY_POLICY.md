@@ -85,7 +85,7 @@ This app can be used worldwide. All data remains on your device regardless of yo
 
 If you have questions about this Privacy Policy, please contact us at:
 
-**Email**: [your-email@example.com]
+**Email**: [gopalkris@gmail.com]
 
 ## Compliance
 
